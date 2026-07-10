@@ -5,7 +5,7 @@
 hallo! my name is $\color{#E8A16F}{\text{jones}}$ or $\color{#F2C77E}{\text{yarrow}}$ <br> 19, she/him — queer & trans <br> *suspected autism, be mindful!*
 
 
-> i need your understanding. i need your love, so much
+> i need your understanding. i need your love, so much. . .
 
 <details>
   <summary>do not int</summary>
