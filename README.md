@@ -1,16 +1,16 @@
-## Hi there 👋
+<img src="https://64.media.tumblr.com/f2f3090147992f7874d318640332f5bd/ca3c03ddfda3f46d-b7/s1280x1920/91952c877d73349cfa8d051b2e07cb0e5c01413a.pnj" alt="App Screenshot" width="400">
 
-<!--
-**junoniahierta/junoniahierta** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+> i need your arms around me, i need to feel your touch. . .
 
-Here are some ideas to get you started:
+hallo! my name is $\color{#E8A16F}{\text{jones}}$ or $\color{#F2C77E}{\text{yarrow}}$ <br> 19, she/him — queer & trans <br> *suspected autism, be mindful!*
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+> i need your understanding. i need your love, so much
+
+<details>
+  <summary>do not int</summary>
+  
+<p></p>
+
+general crtieria i.e racist, homophobic, transphobic, misogynistic. <br> proship, darkship — anything used to justify the romanticization of abuse or toxic dynamics. <br> say suggestive or outright nsfw things within the safe server on ponytown. <br> are not critical of the media you consume — unwilling to hold creators accountable. <br> people who believe if you like a character you 100% allign with their actions and morals. <br> people who are toxic to their doubles (yumeship, kins, etc). 
+</details>
