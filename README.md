@@ -1,11 +1,11 @@
 <img src="https://64.media.tumblr.com/f2f3090147992f7874d318640332f5bd/ca3c03ddfda3f46d-b7/s1280x1920/91952c877d73349cfa8d051b2e07cb0e5c01413a.pnj" alt="App Screenshot" width="400">
 
-> i need your arms around me, i need to feel your touch. . .
+> for human, grossly underqualified. . .
 
 hallo! my name is $\color{#E8A16F}{\text{jones}}$ or $\color{#F2C77E}{\text{yarrow}}$ <br> 19, she/him — queer & trans <br> *suspected autism, be mindful!*
 
 
-> i need your understanding. i need your love, so much. . .
+> for canine, grossly overqualified. . .
 
 <details>
   <summary>do not int</summary>
