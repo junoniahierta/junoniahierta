@@ -2,7 +2,7 @@
 
 > for human, grossly underqualified. . .
 
-hallo! my name is $\color{#E8A16F}{\text{jones}}$ or $\color{#F2C77E}{\text{yarrow}}$ <br> 19, she/him — queer & trans <br> *suspected autism, be mindful!*
+hallo! my name is $\color{#E8A16F}{\text{jones}}$ or $\color{#F2C77E}{\text{julian}}$ <br> 19, she/him — queer & trans <br> *suspected autism, be mindful!*
 
 
 > for canine, grossly overqualified. . .
