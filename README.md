@@ -12,5 +12,5 @@ hallo! my name is $\color{#E8A16F}{\text{jones}}$ or $\color{#F2C77E}{\text{juli
   
 <p></p>
 
-general crtieria i.e racist, homophobic, transphobic, misogynistic. <br> proship, darkship — anything used to justify the romanticization of abuse or toxic dynamics. <br> say suggestive or outright nsfw things within the safe server on ponytown. <br> are not critical of the media you consume — unwilling to hold creators accountable. <br> people who believe if you like a character you 100% allign with their actions and morals. <br> people who are toxic to their doubles (yumeship, kins, etc). <br> do not roleplay with me in ponytown btw please and thanks.
+general crtieria i.e racist, homophobic, transphobic, misogynistic, ableist. <br> proship, darkship — anything used to justify the romanticization of abuse or toxic dynamics. <br> say suggestive or outright nsfw things within the safe server on ponytown. <br> are not critical of the media you consume — unwilling to hold creators accountable. <br> people who believe if you like a character you 100% allign with their actions and morals. <br> people who are toxic to their doubles (yumeship, kins, etc). <br> do not roleplay with me in ponytown btw please and thanks.
 </details>
